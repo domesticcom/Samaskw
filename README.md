@@ -1,1 +1,1 @@
-www.tadbirra.com
+tadbirra.com
